@@ -1,6 +1,6 @@
 <div align="center">
 
-<img src="https://via.placeholder.com/150" alt="A To Z Exports Logo">
+<img src="ChatGPT Image Nov 9, 2025, 08_47_38 AM.png" alt="A To Z Exports Logo">
 
 # A To Z Exports
 *Your Global Partner for Premium Agricultural Goods*
